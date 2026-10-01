@@ -1,2 +1,2 @@
 # SiteLuana
-Site Para Minha Namorada
+Site Para Minha EX Namorada
